@@ -1,2 +1,2 @@
-# PREPRINT Jang-et-al-2023
-PREPRINT Jang et al 2023
+# PREPRINT Tabuena, Jang, Grone
+PREPRINT Tabuena, Jang, Grone
